@@ -1,0 +1,2 @@
+# MyPadel
+Privacy Policy
